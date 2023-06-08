@@ -2,5 +2,6 @@
 
 
 
-https://github.com/zianwangs/sight-reading-practice/assets/49712411/46427628-f04e-48b8-a7a4-b2c12b12ed39
+https://github.com/zianwangs/sight-reading-practice/assets/49712411/aa34a3b7-572a-4c22-b0c5-10f7ac474adc
+
 
